@@ -79,7 +79,7 @@ def months_between(start_month, end_month):
 
 def main():
     logging.basicConfig(level=logging.INFO)
-    '''
+
     img_list = []
     for i in months_between("2025-05", "2026-01"):
         img_list.extend(get_img_url("docs/{}.html".format(i)))
@@ -87,7 +87,7 @@ def main():
     with open("1.txt", "w", encoding='utf') as f:
         for i in img_list:
             f.write("https://cn.bing.com/th?id={}.jpg\n".format(i))
-    '''
+
     with open("1.txt", encoding='utf') as f:
         with requests.session() as s:
             s.headers.update(header)
