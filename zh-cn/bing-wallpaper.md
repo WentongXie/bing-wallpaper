@@ -1,4 +1,66 @@
 ## Bing Wallpaper
+2026-05-05 | [莲花与莲花植株 (© real444/Getty Images)](https://cn.bing.com/th?id=OHR.BeginningofSummerY26_ZH-CN7628545617_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2026-05-04 | [乌莱德·索尔坦克萨尔，塔塔温区，突尼斯南部 (© Dark_Eni/Getty Images Plus)](https://cn.bing.com/th?id=OHR.KsarOuledSoltane_ZH-CN3569810663_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2026-05-03 | [萨瓦纳草原的树上睡觉的豹子，马赛马拉国家保护区，肯尼亚 (© Klein & Hubert/Nature Picture Library)](https://cn.bing.com/th?id=OHR.MasaiLeopard_ZH-CN3406483238_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2026-05-02 | [阿尔伯塔省贾斯珀国家公园中的小型湖泊与湿地，加拿大 (© Don White/Getty Images)](https://cn.bing.com/th?id=OHR.GreenJasper_ZH-CN3030401138_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2026-05-01 | [中国的长城 (© aphotostory/Getty Images)](https://cn.bing.com/th?id=OHR.MayLaborDayY26_ZH-CN7554485395_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2026-04-30 | [葡萄风信子和郁金香, 库肯霍夫花园, 利塞, 荷兰 (© Martin Ruegner/Getty Images)](https://cn.bing.com/th?id=OHR.DutchTulips_ZH-CN6394892537_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2026-04-29 | [塔霍河岸边的贝伦塔, 里斯本, 葡萄牙 (© f9photos/Getty Images)](https://cn.bing.com/th?id=OHR.BelemTowerBank_ZH-CN6235906597_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2026-04-28 | [眼镜熊在树上休息, 厄瓜多尔 (© Andy Rouse/Nature Picture Library)](https://cn.bing.com/th?id=OHR.AndeanBear_ZH-CN6152330738_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2026-04-27 | [维托里奥·埃马努埃莱二世拱廊的玻璃穹顶, 米兰, 意大利 (© PhillipMinnis/Getty Images)](https://cn.bing.com/th?id=OHR.MilanGalleria_ZH-CN6060869879_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2026-04-26 | [粉红色的苹果花, 阿维拉海滩, 加利福尼亚州, 美国 (© Mimi Ditchie Photography/Getty Images)](https://cn.bing.com/th?id=OHR.AppleBlossoms_ZH-CN5887711928_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2026-04-25 | [加拉帕戈斯企鹅游泳, 加拉帕戈斯群岛, 厄瓜多尔 (© Henley Spiers/Nature Picture Library)](https://cn.bing.com/th?id=OHR.GalapagosPenguins_ZH-CN5791845489_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2026-04-24 | [湿地松和锯棕榈组成的森林吊床, 大沼泽地国家公园, 佛罗里达, 美国 (© Mary Liz Austin/Alamy)](https://cn.bing.com/th?id=OHR.SlashPine_ZH-CN5629388290_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2026-04-23 | [安妮·海瑟薇的小屋与花园，埃文河畔斯特拉特，英格兰 (© David Steele/Shutterstock)](https://cn.bing.com/th?id=OHR.HathawayCottage_ZH-CN5558945636_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2026-04-22 | [阿拉姆-佩德亚自然保护区，塔尔图县，爱沙尼亚 (© Sven Zacek/Nature Picture Library)](https://cn.bing.com/th?id=OHR.TartuEstonia_ZH-CN5477370206_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2026-04-21 | [西欧刺猬，法国 (© Klein & Hubert/Nature Picture Library)](https://cn.bing.com/th?id=OHR.SpringHedgehog_ZH-CN5232922916_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2026-04-20 | [夕阳下的峡谷地国家公园，莫阿布，犹他州，美国 (© Jason Hatfield/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.SunsetKiva_ZH-CN3978606378_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2026-04-19 | [镜面海滩，塞古罗港，巴伊亚州，巴西 (© Marcelo Nacinovic/Getty Images)](https://cn.bing.com/th?id=OHR.TranBA_ZH-CN3467060262_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2026-04-18 | [摩艾石像采石场，拉诺拉拉库，复活节岛，智利 (© Gavin Hellier/Alamy)](https://cn.bing.com/th?id=OHR.MaoiStatues_ZH-CN3219447748_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2026-04-17 | [灰头狐蝠母亲携幼崽，雅拉湾国家公园，澳大利亚 (© Doug Gimesy/Nature Picture Library)](https://cn.bing.com/th?id=OHR.FlyingFoxMom_ZH-CN2913012516_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2026-04-16 | [斯卡吉特谷地郁金香花田, 华盛顿, 美国 (© Alan Majchrowicz/Getty Images)](https://cn.bing.com/th?id=OHR.SkagitTulips_ZH-CN4234324174_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2026-04-15 | [光之采石场的文森特·梵高展览, 莱博德普罗旺斯, 法国 (© Patrick Aventurier/Getty Images)](https://cn.bing.com/th?id=OHR.VanGoghFields_ZH-CN3495668941_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2026-04-14 | [海葵中的普通小丑鱼, 拉贾安帕特群岛, 印度尼西亚 (© Magnus Lundgren/Nature Picture Library)](https://cn.bing.com/th?id=OHR.OcellarisClownfish_ZH-CN9362948727_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2026-04-13 | [安扎-博雷戈沙漠州立公园上空的银河, 加利福尼亚州, 美国 (© Kevin Key/Slworking)/Getty Images)](https://cn.bing.com/th?id=OHR.BorregoStars_ZH-CN8915519147_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2026-04-12 | [城市灯光在下方划过, 拍摄于国际空间站 (© NASA)](https://cn.bing.com/th?id=OHR.SpaceTrails_ZH-CN8377463217_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2026-04-11 | [帕帕加约海滩, 兰萨罗特, 加那利群岛, 西班牙 (© Gavin Hellier/Getty Images)](https://cn.bing.com/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2026-04-10 | [卡鲁拉国家公园的两只幼年赤狐, 爱沙尼亚 (© Sven Zacek/Nature Picture Library)](https://cn.bing.com/th?id=OHR.FoxSiblings_ZH-CN8133856518_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2026-04-09 | [雪落瀑布，布雷肯比肯斯国家公园，威尔士 (© Guy Edwardes/Nature Picture Library)](https://cn.bing.com/th?id=OHR.WalesWaterfall_ZH-CN3175091833_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2026-04-08 | [西雅图，华盛顿州，美国 (© Jim Patterson/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.SeattleSunrise_ZH-CN2884575647_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2026-04-07 | [河狸，德国 (© Andyworks/Getty Images)](https://cn.bing.com/th?id=OHR.BeaverPortrait_ZH-CN4700069789_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2026-04-06 | [樱花盛开的弘前城，弘前，日本 (© Glenn Waters/Getty Images)](https://cn.bing.com/th?id=OHR.CastleBlossoms_ZH-CN3064288127_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2026-04-05 | [春天的雪钟花 (© klagyivik/Getty Images)](https://cn.bing.com/th?id=OHR.SpringSnowdrops_ZH-CN2933051747_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-04 | [求偶展示场上对峙的雄性黑琴鸡，爱沙尼亚 (© Sven Zacek/Nature Picture Library)](https://cn.bing.com/th?id=OHR.GrouseGuff_ZH-CN2647001885_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-03 | [阿姆布鲁大桥，阿姆斯特丹，荷兰 (© Alexander Spatari/Getty Images)](https://cn.bing.com/th?id=OHR.ArmbrugBridge_ZH-CN4600005169_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 

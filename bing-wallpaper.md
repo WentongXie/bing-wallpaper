@@ -1,4 +1,68 @@
 ## Bing Wallpaper
+2026-05-06 | [Field of blue agave near Tequila, Jalisco, Mexico (© Brian Overcast/Alamy)](https://cn.bing.com/th?id=OHR.MayoAgave_EN-US0521416350_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2026-05-05 | [Ksar Ouled Soltane, Tataouine district in southern Tunisia (© Dark_Eni/Getty Images Plus)](https://cn.bing.com/th?id=OHR.KsarOuledSoltane_EN-US0477407273_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2026-05-04 | [Leopard sleeping in a tree in savanna, Masai Mara National Reserve, Kenya (© Klein & Hubert/Nature Picture Library)](https://cn.bing.com/th?id=OHR.MasaiLeopard_EN-US0388943780_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2026-05-03 | [Small lake and marsh in Jasper National Park in Alberta, Canada (© Don White/Getty Images)](https://cn.bing.com/th?id=OHR.GreenJasper_EN-US0253969334_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2026-05-02 | [Koi fish, Lan Su Chinese Garden, Portland, Oregon (© Greg Vaughn/Getty Images)](https://cn.bing.com/th?id=OHR.KoiPond_EN-US0207799352_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2026-05-01 | [Grape hyacinths and tulips, Keukenhof Gardens, Lisse, Netherlands (© Martin Ruegner/Getty Images)](https://cn.bing.com/th?id=OHR.DutchTulips_EN-US2575617067_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2026-04-30 | [Belém Tower on the bank of the Tagus River, Lisbon, Portugal (© f9photos/Getty Images)](https://cn.bing.com/th?id=OHR.BelemTowerBank_EN-US2528466391_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2026-04-29 | [Spectacled bear resting in tree, Ecuador (© Andy Rouse/Nature Picture Library)](https://cn.bing.com/th?id=OHR.AndeanBear_EN-US2465945308_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2026-04-28 | [The glass dome of Galleria Vittorio Emanuele II, Milan, Italy (© PhillipMinnis/Getty Images)](https://cn.bing.com/th?id=OHR.MilanGalleria_EN-US2432086382_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2026-04-27 | [Pink apple blossoms, Avila Beach, California (© Mimi Ditchie Photography/Getty Images)](https://cn.bing.com/th?id=OHR.AppleBlossoms_EN-US2396192691_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2026-04-26 | [Galápagos penguins swimming, Galápagos Islands, Ecuador (© Henley Spiers/Nature Picture Library)](https://cn.bing.com/th?id=OHR.GalapagosPenguins_EN-US2287809863_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2026-04-25 | [Forest hammock of slash pine and saw palmetto, Everglades National Park, Florida (© Mary Liz Austin/Alamy)](https://cn.bing.com/th?id=OHR.SlashPine_EN-US2059787604_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2026-04-24 | [Anne Hathaway's cottage and garden, Stratford-upon-Avon, England (© David Steele/Shutterstock)](https://cn.bing.com/th?id=OHR.HathawayCottage_EN-US1795877015_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2026-04-23 | [Alam-Pedja Nature Reserve in Tartu County, Estonia (© Sven Zacek/Nature Picture Library)](https://cn.bing.com/th?id=OHR.TartuEstonia_EN-US1627168155_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2026-04-22 | [European hedgehog, France (© Klein & Hubert/Nature Picture Library)](https://cn.bing.com/th?id=OHR.SpringHedgehog_EN-US1312133826_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2026-04-21 | [Sunset in Canyonlands National Park, Moab, Utah (© Jason Hatfield/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.SunsetKiva_EN-US1031978429_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2026-04-20 | [Books in the children's section of The New York Public Library, New York (© Ken Welsh/Alamy)](https://cn.bing.com/th?id=OHR.LibraryWeek_EN-US0888768835_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2026-04-19 | [Moai statue quarry, Rano Raraku, Easter Island, Chile (© Gavin Hellier/Alamy)](https://cn.bing.com/th?id=OHR.MaoiStatues_EN-US0752877903_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2026-04-18 | [Grey-headed flying fox carrying her pup, Yarra Bend Park, Australia (© Doug Gimesy/Nature Picture Library)](https://cn.bing.com/th?id=OHR.FlyingFoxMom_EN-US0502464388_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2026-04-17 | [Skagit Valley Tulip Fields, Washington (© Alan Majchrowicz/Getty Images)](https://cn.bing.com/th?id=OHR.SkagitTulips_EN-US8944602365_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2026-04-16 | [The Carrières des Lumières exhibit of Vincent Van Gogh, Les Baux-de-Provence, France (© Patrick Aventurier/Getty Images)](https://cn.bing.com/th?id=OHR.VanGoghFields_EN-US8748933044_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2026-04-15 | [Common clownfish in a sea anemone, Raja Ampat Islands, Indonesia (© Magnus Lundgren/Nature Picture Library)](https://cn.bing.com/th?id=OHR.OcellarisClownfish_EN-US8509728179_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2026-04-14 | [Milky Way over Anza-Borrego Desert State Park, California (© Kevin Key/Slworking)/Getty Images)](https://cn.bing.com/th?id=OHR.BorregoStars_EN-US8252825773_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2026-04-13 | [City lights streak below, taken from the International Space Station (© NASA)](https://cn.bing.com/th?id=OHR.SpaceTrails_EN-US8009082939_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2026-04-12 | [Papagayo Beach, Lanzarote, Canary Islands, Spain (© Gavin Hellier/Getty Images)](https://cn.bing.com/th?id=OHR.PlayaPapagayo_EN-US7775494888_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2026-04-11 | [Two young red foxes at Karula National Park, Estonia (© Sven Zacek/Nature Picture Library)](https://cn.bing.com/th?id=OHR.FoxSiblings_EN-US7533678992_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2026-04-10 | [Sgwd yr Eira waterfall, Bannau Brycheiniog National Park, Wales (© Guy Edwardes/Nature Picture Library)](https://cn.bing.com/th?id=OHR.WalesWaterfall_EN-US7187055503_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2026-04-09 | [Seattle, Washington (© Jim Patterson/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.SeattleSunrise_EN-US6729754002_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2026-04-08 | [Beaver, Germany (© Andyworks/Getty Images)](https://cn.bing.com/th?id=OHR.BeaverPortrait_EN-US6459336252_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2026-04-07 | [Hirosaki Castle with cherry blossoms, Hirosaki, Japan (© Glenn Waters/Getty Images)](https://cn.bing.com/th?id=OHR.CastleBlossoms_EN-US6202844131_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2026-04-06 | [Colorful handmade wooden Easter eggs, Vilnius, Lithuania (© maximkabb/Getty Images)](https://cn.bing.com/th?id=OHR.LithuaniaEggs_EN-US5074250791_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2026-04-05 | [Black grouse males facing off on a lekking site, Estonia (© Sven Zacek/Nature Picture Library)](https://cn.bing.com/th?id=OHR.GrouseGuff_EN-US4212457538_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2026-04-04 | [Armbrug bridge, Amsterdam, Netherlands (© Alexander Spatari/Getty Images)](https://cn.bing.com/th?id=OHR.ArmbrugBridge_EN-US3302230248_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-04-03 | [Wildflower bloom, Central Valley, California (© Jeff Lewis/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.WildflowerValley_EN-US6579657743_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
